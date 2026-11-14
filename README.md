@@ -1,4 +1,4 @@
-# STAMPZ
+# hi look at all of my stamps (if you want)
 <img width="100" height="63" alt="tumblr_1e0753aca743e2996f650680e7ca3ab6_9d56bb42_100" src="https://github.com/user-attachments/assets/5e694246-ba82-451b-a009-6a66e78ae42f" />
 <img width="99" height="56" alt="tumblr_05051f8812ecadcfcdfdff261adfc221_d2b685e7_100" src="https://github.com/user-attachments/assets/b5ae3659-6ef0-4da6-a5dd-daf2ef93e118" />
 <img width="99" height="56" alt="tumblr_2dc934424ae370c4999d9609c62001d4_1ab4e98e_100" src="https://github.com/user-attachments/assets/14131f49-feb2-43f1-bc24-736da6009df0" />
